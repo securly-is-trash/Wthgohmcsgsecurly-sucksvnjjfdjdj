@@ -1,3 +1,3 @@
 # Wthgohmcsgsecurly-sucksvnjjfdjd
-totally not for gme assets
+totally not for game assets
 ---
